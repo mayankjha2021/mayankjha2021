@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on backend projects 
 - 📫 How to reach me Linkedin:-Mayank kumar Instagram:- immayank_45_ Github:- mayankjha2021
 - 😄 Pronouns: Padho likho IAS YAS bano desh sambhalo
-- ⚡ Fun fact:Commonsense is not common 
+- ⚡ Fun fact:Commonsense is not so common 
 
 <!---
 mayankjha2021/mayankjha2021 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
